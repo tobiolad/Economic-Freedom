@@ -1,4 +1,4 @@
-# Economic-Freedom
+# Canada Economic-Freedom
 
 ## Introduction
 In a discussion, we debated whether Canada is an opportunity, threat, or unknown. My position was that Canada is an opportunity due to its economic importance, political stability, high quality of life, and multicultural society. These factors make Canada attractive for immigrants and businesses, fostering innovation and providing a solid foundation for long-term growth.
